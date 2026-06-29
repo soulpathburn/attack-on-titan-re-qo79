@@ -1,4 +1,4 @@
-#  
+#  Experience attack on titan revolution like never before with attack on titan revolution no-ban Script, the #1 Script. Includes one-hit kill and speed
 
 
 
